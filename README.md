@@ -1,2 +1,2 @@
 # hello-world
-just another repository
+blah blah blah is not good it wastes ur energy and time
